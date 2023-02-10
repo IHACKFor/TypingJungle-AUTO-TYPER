@@ -1,0 +1,1 @@
+# TypingJungle-AUTO-TYPER
